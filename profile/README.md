@@ -1,4 +1,4 @@
-![Banner](https://posgrad.lncc.br/images/banners/2024/Cartaz_PPG.jpeg)
+![Banner](https://posgrad.lncc.br/images/banners/2025/banner_1_2025.png)
 
 # Alunos do PPGMC/LNCC
 
